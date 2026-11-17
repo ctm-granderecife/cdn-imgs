@@ -1,0 +1,1 @@
+essas imagens são utilizadas no app da hemovida em atendimento digital

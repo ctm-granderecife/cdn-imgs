@@ -1,0 +1,1 @@
+imagens usadas nos links relacionados as redes sociais no atendimento digital
